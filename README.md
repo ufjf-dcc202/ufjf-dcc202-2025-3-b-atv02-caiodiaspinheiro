@@ -1,2 +1,2 @@
 Caio Pinheiro
-caiodiandradi@gmail.com
+pinheiro.caio@estudante.ufjf.br
